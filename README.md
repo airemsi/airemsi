@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @airemsi
+- 👀 I’m interested in Discord bot development and AI
+- 🌱 I’m currently learning Javascript
+- 📫 My username is the same everywhere!! (except instagram, it's a1remsi there)
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I'm autistic 😎
